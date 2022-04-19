@@ -2,13 +2,12 @@
 
 # Ingredients List
 
+* 12 lbs Amish chicken wings (tips or drumsticks depending on preference)
+* 1 table spoon of plain yogurt for every 6 wings
+* 1 desert spoon of pepper paste
+* 1 desert spon of vegetable oil
+* Black pepper
+* Turkish crushed red peppers (or paprika)
+* 1-2 heads of garlic, minced (if desired)
 4 cups Turkish Hot Peppers
-500ml EVOO
-150g Fresh Parsley
-1-2 heads of garlic, minced
-4 tbps pomegrante syrup 
-4 tbps Sea Salt
-15g isot pepper
-10g ground cumin
-10g paprika
-12 lbs Amish chicken wings, tips or drumsticks depending on preference.  
+  
