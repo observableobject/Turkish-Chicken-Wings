@@ -9,10 +9,10 @@
 * 1 desert spoon of pepper paste
 * 1 desert spon of vegetable oil
 * Black pepper
-* Turkish crushed red peppers (or paprika)
+* Aleppo pepper flakes (or paprika)
 * 1-2 heads of garlic, minced (if desired)
 
-*Important Note:* All the ingredients listed below for the salads are for 1 serving. 
+**Important Note:** All the ingredients listed below for the salads are for 1 serving. 
 
 ## Onion Salad Ingredients
 
@@ -27,9 +27,23 @@
 * 1/2 large yellow or white onion
 * 1/4 bunch of Italian Parsley
 * 1 tomato on the vine
-* 1 sweet red pepper
+* 1/2 sweet red pepper
+* 1/2 Hungarian wax pepper
 * 1 table spoon of Sumac
 * 1/2 table spoon of salt
 * 1/2 table spoon of black pepper
+* 1/2 table spoon of aleppo pepper flakes
 * 2 table spoon of olive oil
+* 2-3 table spoon of pomegranate sauce
   
+## Ezme Salad (Turkish Salsa) Ingredients
+
+* 1/2 large yellow or white onion
+* 1/4 bunch of Italian Parsley
+* 3 tomato on the vine
+* 1/2 sweet red pepper
+* 1/2 table spoon of salt
+* 1/2 table spoon of black pepper
+* 1/2 table spoon of aleppo pepper flakes
+* 3 table spoon of olive oil
+* 2-3 table spoon of pomegranate sauce
