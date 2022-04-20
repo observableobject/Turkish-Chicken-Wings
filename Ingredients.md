@@ -18,7 +18,7 @@
 
 * 1/2 large yellow or white onion
 * 1/4 bunch of Italian Parsley
-* 1 table spoon of Sumac
+* 1 table spoon of Sumac (or more if desired)
 * 1/2 table spoon of salt
 * 1 table spoon of olive oil
 
@@ -33,17 +33,20 @@
 * 1/2 table spoon of salt
 * 1/2 table spoon of black pepper
 * 1/2 table spoon of aleppo pepper flakes
-* 2 table spoon of olive oil
-* 2-3 table spoon of pomegranate sauce
+* 2 table spoons of olive oil
+* 2-3 table spoons of pomegranate sauce
   
 ## Ezme Salad (Turkish Salsa) Ingredients
 
 * 1/2 large yellow or white onion
-* 1/4 bunch of Italian Parsley
-* 3 tomato on the vine
-* 1/2 sweet red pepper
+* 1/2 bunch of Italian Parsley
+* 3 tomatoes on the vine
+* 1 sweet red pepper
+* 2 Serano peppers (if needs to be spicy)
+* 2 minced garlic heads (if needs to be spicy)
 * 1/2 table spoon of salt
 * 1/2 table spoon of black pepper
 * 1/2 table spoon of aleppo pepper flakes
-* 3 table spoon of olive oil
-* 2-3 table spoon of pomegranate sauce
+* 1/2 table spoon of red pepper paste
+* 3 table spoons of olive oil
+* 2-3 table spoons of pomegranate sauce
