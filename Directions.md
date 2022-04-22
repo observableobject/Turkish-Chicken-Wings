@@ -33,3 +33,56 @@ better. Also make sure to slide the wings on the skewer as they tend to stick to
 9) Once everything is cooked, you can put the skewers between the slices of bread and pull the skewer out. This will leave the wings between the slices of bread and they are ready to be served. 
 
 Bon apetit!
+
+**Important Note:** All the recipes listed below for the salads are for 1 serving. 
+
+### Onion Salad
+
+1) Chop 1/2 yellow or white onion very fine (papper thin pieces)
+2) Chop 1/4 bunch of the Italian parsley very fine
+3) Add the chopped onion and parsley into a salad bowl
+4) Add 1 table spoons of Sumac (or more if desired)
+4) Add 1/2 table spoon of salt
+5) Add 1 table spoon of olive oil
+6) Mix all the ingredients
+
+[Making of Onion Salad](https://www.youtube.com/watch?v=YSzZiTuNl-E)
+
+### Tablaci Salad
+
+1) Chop 1/2 yellow or white onion very fine (papper thin pieces)
+2) Chop 1/4 bunch of the Italian Parsley very fine
+3) Dice 1 tomato on the vine
+4) Chop 1/2 sweet red pepper very fine (papper thin pieces)
+5) Chop 1/2 Hungarian wax pepper very fine (papper thin pieces)
+6) Add the chopped onion, parsley, sweet red peppers and Hungarian wax peppers into a salad bowl
+7) Add 1 table spoon of Sumac (or more if desired)
+8) Add 1/2 table spoon of salt
+9) Add 1/2 table spoon of black pepper
+10) Add 1/2 table spoon of aleppo pepper flakes
+11) Add 2 table spoons of olive oil
+12) Add 2-3 table spoons of pomegranate sauce
+10) Mix all the ingredients
+
+[Making of Tablaci Salad](https://www.youtube.com/watch?v=FWeKXbm4GRw)
+
+### Ezme Salad (Turkish Salsa)
+
+1) Dice and mash 1/2 yellow or white onion very fine
+2) Dice and mash 3 tomatoes on the vine very fine
+3) Dice and mash 1 sweet red pepper very fine
+4) Dice and mash 2 Serano peppers very fine (if needs to be spicy)
+5) Chop 1/2 bunch of the Italian parsley very fine
+6) Add mashed onion, tomatoes, sweet red pepper and parsley into a salad bowl
+7) Add 1/2 table spoon of salt into a separate bowl for sauce
+8) Add 1/2 table spoon of black pepper into a separate bowl for sauce 
+9) Add 1/2 table aleppo peppers into a separate bowl for sauce
+10) Add 1/2 table spoon of red pepper paste into a separate bowl for sauce
+11) Add 3 table spoons of olive oil into a separate bowl for sauce
+12) Add 2 minced garlic heads into a separate bowl for sauce (if needs to be spicy)
+13) Mix all the ingredients for the sauce
+14) Add the sauce into the salad bowl and mix them all together
+15) Move the mix into a shallow large plate
+16) Add 2-3 table spoons of pomegranate sauce on top
+
+[Making of Ezme Salad](https://www.youtube.com/watch?v=03kbOZxa3oU)
