@@ -12,7 +12,7 @@
 * Aleppo pepper flakes (or paprika)
 * 1-2 heads of garlic, minced (if desired)
 
-**Important Note:** All the ingredients listed below for the salads are for 1 serving. 
+**Important Note:** All the ingredients listed below for the salads are for one serving. 
 
 ## Onion Salad Ingredients
 
@@ -50,3 +50,11 @@
 * 1/2 table spoon of red pepper paste
 * 3 table spoons of olive oil
 * 2-3 table spoons of pomegranate sauce
+
+## Turkish Wings Bread
+
+* White Italian Bread
+* A pinch of Aleppo pepper flakes (or paprika)
+* A pinch of thyme
+* 1/2 table spoon of minced garlic
+
