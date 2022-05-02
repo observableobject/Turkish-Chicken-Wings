@@ -86,3 +86,37 @@ Bon apetit!
 16) Add 2-3 table spoons of pomegranate sauce on top
 
 [Making of Ezme Salad](https://www.youtube.com/watch?v=03kbOZxa3oU)
+
+### Barbecue Veggies (Veggies on Skewers)
+
+1) Cut the tomatoes and onions into half and keep their skin on
+2) Add the pieces of tomatoes and onions to skewers
+3) Add sweet red peppers and Hugarian wax pepppers to skewers
+4) Barbecue either sides of the skewers until either side of the veggies are charred
+5) Peel the charred skin off of veggies and they are ready to be served
+
+[BBQ Veggies](https://youtu.be/u4FgY2bbxns?t=53)
+
+### Grilled Veggie Salad Ingredients
+
+1) Cut zucchini, eggplant, mushrooms, red pepper, Hungarian pepper into little pieces
+2) Add all the veggies into a mixing bowl
+For the marination 
+3) Add 1/2 cup of olive oil into the bowl
+4) Add 2 table spoons of vinegar
+5) Add 1/2 table spoon of salt, Aleppo peppers (or re pepper flakes/paprika), black pepper into the bowl
+6) Smash 1 table spoon of Coriander seeds and add them into the bowl
+7) Grate the skin of a lemon for the lemon zest and add 1 table spoon of zest into the bowl
+8) Mix all the veggies and the marination sauce together
+9) Put the marinated veggies on the grill and make sure to grill either side
+For the salad dressing
+10) Add 1 cup of olive oil into a mixing bowl
+11) Add 1 table spoon of mustard to the bowl
+12) Add 1/2 table spoon of salt and black pepper to the bowl
+13) Squeze 1 whole lemon juice into the bowl
+14) Mix all the ingredients
+15) Add 1 cup of dill
+16) Once the veggies are grilled put them into a salad bowl along with mixed greens
+16) Add the salad dressing on top and mix them well
+17) You can also grill some Halloumi cheese or Tofu to add into the mix
+
