@@ -50,3 +50,33 @@
 * 1/2 table spoon of red pepper paste
 * 3 table spoons of olive oil
 * 2-3 table spoons of pomegranate sauce
+
+## Barbecue Veggies (Vegeies on Skewers) Ingredients
+
+* 3 tomatoes on the vine
+* 3 medium size yellow onions
+* 2 sweet red peppers
+* 2 Hungarian wax peppers
+
+## Grilled Veggie Salad Ingredients
+
+* 1 zucchini
+* 1 Chinese eggplant
+* 1 cup of mushrooms
+* 1 sweet red pepper
+* 1 Hungarian wax pepper (2-3 Jalapeno peppers if needs to be spicy)
+* 1/2 cup of olive oil
+* 2 table spoons of vinegar
+* 1/2 table spoon of salt
+* 1/2 table spoon of Aleppo peppers (or red pepper flakes/paprika)
+* 1/2 table spoon of black pepper
+* 1 table spoon of Coriander seeds
+* 1 table spoon of lemon zest
+* 1 lemon juice
+* 1 cup of olive oil
+* 1 table spoon of mustard
+* 1/2 table spoon of salt
+* 1/2 table spoon of black pepper
+* 1 cup of dill
+* 1 cup of mixed greens
+* Halloumi cheese or tofu (optional)
