@@ -18,7 +18,9 @@
 1) Prepare the grille to low temperture (What ever that means for a traditional BBQ set in US? - Derek & Vince)
 
 **Important Note** : Usually a Turkish grill is basically a open metal box where the coal embers are inside. Low temprerature refers to less embers underneath the shish in this context. Refer to the following video for a better understanding:
+
 [Cooking Chicken Wings on Turkish BBQ](https://youtu.be/us80_CKOkSM?t=340)
+
 It is crucial to cook the wings slowly. Cooking them at high temperatures will cause the skin to be charred quickly where as they will be raw inside. 
 
 2) Put the wings on the shish (6-7 wings per shish) as shown in the video. If shishes(skewers) available are thinner than the ones shown in the video above, you can use two of them together. (You can even use a fish basket - Derek & Vince)
@@ -34,7 +36,7 @@ better. Also make sure to slide the wings on the skewer as they tend to stick to
 
 Bon apetit!
 
-**Important Note:** All the recipes listed below for the salads are for 1 serving. 
+**Important Note:** All the recipes listed below for the salads are for one serving. 
 
 ### Onion Salad
 
@@ -86,6 +88,19 @@ Bon apetit!
 16) Add 2-3 table spoons of pomegranate sauce on top
 
 [Making of Ezme Salad](https://www.youtube.com/watch?v=03kbOZxa3oU)
+
+[Turkish Wings Bread](https://youtu.be/us80_CKOkSM?t=405)
+
+1) Slice the Italian brean into half as the wings (or vegetables) are grilled
+2) Once the wings (or vegetables) are grilled for a while and become juicy make sure to put the skewers between two slices
+3) Let the bread suck on the wings sauce and then move the wings (or vegetables) back on the grill
+4) Repeat the last two steps above a couple of times
+5) Once the wing sauce and the fat is spread nicely between slices sprinkle a pinch of Aleppo pepper, a pinch of thyme
+6) Also if you like your bread to be a little more spicy you can sprinkle 1/2 table spoon of minced garlic on the slices
+7) Once the wings (or vegetables) are fully cooked, move the skewers between two slices last time. Make sure to press on top of the slices and gently pull the skewers. The wings will reamin between the slices and that's the way to serve Turkish wings. 
+
+**Important Note:** Why not use a lavash or a pita bread for wings? Because the Italian bread can able to keep all the juices and the wings sauce within compared to those breads.
+
 
 ### Barbecue Veggies (Veggies on Skewers)
 
